@@ -4,4 +4,4 @@ Now we have Christmas Eve. New code will be added after Holidays.
 Well... Christmas Holidays are longer this Year ;)
 
 Merry Christmas again!
-![Merry Christmas](https://www.advatech.pl/wp-content/uploads/2018/12/weso%C5%82ych-%C5%9Bwi%C4%85tt.jpg)
+![Merry Christmas](https://img.fruugo.com/product/1/49/522028491_max.jpg)
